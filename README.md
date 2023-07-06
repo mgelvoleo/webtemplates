@@ -1,1 +1,1 @@
-# Templates for former employee
+# Templates for former Employer
